@@ -1,7 +1,7 @@
 # 🐐 qbaman github account
 
 ## about me
-- 19, UK, student
+- 20, United Kingdom, Student
 
 ## stats
 
